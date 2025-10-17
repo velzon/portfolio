@@ -1,1 +1,1 @@
-# portfolio
+# Gizlilik Politikası
